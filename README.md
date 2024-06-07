@@ -1,3 +1,4 @@
+REMOTE
 Vers les docks où le poids et l'ennui
 Me courbent le dos
 Ils arrivent le ventre alourdi
